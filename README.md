@@ -1,0 +1,3 @@
+Hi! My name is Andrei, a 21 year old student from Bucharest, Romania. 
+I am currently studying applied informatics at the Automatic Control and Computer Science Faculty. From my 3 years being at this University I can definitely say that I developed a passion for engineering. Even from my time in high school I liked exploring mathematics and physics and based on those I decided to pursue a technical University. 
+I am a person with a great scene of humor, hard-working, who likes being part of a team to find the best solution for our goal. Over the years I have developed great problem solving skills and technical abilities that will help me achieve my dream in becoming an engineer. 
